@@ -9,3 +9,4 @@ I am passionate about pursuing a career in software development
 In my free time, I enjoy:
 - Playing games 
 - Watching movies 
+i enjoy cooking at home
